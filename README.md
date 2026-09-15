@@ -6,7 +6,7 @@
 I do art commissions! I only take cashapp and maybe, Robux? Will probably set up PayPal soon! 
 here some arts I drew!
 
-•⁐⁐⁐⁐⁐⁐• ୨+୧ •⁐⁐⁐⁐⁐⁐•
+⠀ ⠀ ⠀ ⠀ ⠀ •⁐⁐⁐⁐⁐⁐• ୨+୧ •⁐⁐⁐⁐⁐⁐•
 ____________
 
 ⠀ <img src="https://github.com/pilot-z/pilot-z/blob/33b6cd69bed7db4aa4649d6b4f7853dfbb293c5f/Untitled366_20260915142959.png" width="50%">
