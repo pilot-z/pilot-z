@@ -3,7 +3,7 @@
 𐂂⠀-- ⠀ ⠀If you want to draw;⠀   [STRAWPAGE](https://jordanhal.straw.page) 
 
 
-I do art commissions! I only take cashapp and maybe, Robux? Will probably set up PayPal soon! 
+Planning to do art-commissions…hmm…
 here some arts I drew!
 
 ⠀ ⠀ ⠀ ⠀ ⠀ •⁐⁐⁐⁐⁐⁐• ୨+୧ •⁐⁐⁐⁐⁐⁐•
