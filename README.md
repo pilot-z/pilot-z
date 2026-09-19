@@ -17,17 +17,10 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 <img src="https://github.com/bat-z/bat-z/blob/cdad4e7daca15e76301a91401c64ec732d9f3aaa/783844DD-6F1D-4FBD-B814-D6349ACB7E35.jpeg" width="40%"><img src="https://github.com/bat-z/StaticSh0ck/blob/94fab8e6e4d33cff882e482d776c3f81fd773029/914e5954b57ed5d26f282858805cf363.jpg" width="30%"><img src="https://github.com/bat-z/bat-z/blob/002c09f0350c8c0a5d8737d2b4b47f2392d52d0b/237699B5-F816-4797-917E-BA6E00FC5864.jpeg" width="30%"> 
 ⠀ ⠀ ⠀
-𐂂⠀  --⠀  My name is Hal, Rae, or Sol. 
-⠀ ⠀
-⠀⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ other⠀names! I have multiple ;
 
-
-
-   
- ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol.
+ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 𐂂 - Greetings, you can call me Hal / Harold or other names like Rae or Sol. I am fine with nicknames.
  
- ⠀ 𐂂⠀- other names I love;Damian, Aster Azrael,Thorne, or Ghoul!
+ ⠀ 𐂂⠀- other names I love; Damian, Aster Azrael,Thorne, or Ghoul!
     
     
 ⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns we prefer ; they / she / any
