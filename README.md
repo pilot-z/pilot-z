@@ -23,7 +23,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
  ⠀ 𐂂⠀- other names I love; Damian, Aster Azrael,Thorne, or Ghoul!
     
     
-⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns we prefer ; they / she / any
+⠀⠀ ⠀ ⠀ ⠀⠀𐂂⠀ --⠀pronouns we prefer ; it / its or they / them .
       ⠀ 
       
  ⠀𐂂⠀ -- Biracial ! (black n brown ) . Puerto Rico ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ 
