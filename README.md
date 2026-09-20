@@ -36,7 +36,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 ⠀      ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀𐂂⠀  ⠀Introverted 
  ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ISTP 6w7 !
 ⠀ 
 ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀⠀ 𐂂 -- ⠀Furry, kemonomimi & alterhuman!
 
