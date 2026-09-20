@@ -297,6 +297,8 @@ People who have problems with friends, unless they have done something uncomfort
 
 Invincible , Muppets , Jason Todd/Batfam fans and Eddsworld fans unless friends.
 
+ Supernatural IWVEC/or don’t mention unless friends. 
+
 Fictionkins & yumeshippers users unless we friends
 
 
@@ -312,7 +314,7 @@ Fictionkins & yumeshippers users unless we friends
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
- No fandom DNI. except Supernatural  
+ No fandom DNI  
  
 Not going to list others. I'm going to block whoever I want. I block freely! If I don't like your vibe, I'll probably avoid or block you shrugs
 
