@@ -67,7 +67,7 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 
 — I care a lot about my own image.
 
-— I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
+
 
 —  I’m awkward as shit. 
 I’m socially awkward and get overwhelmed really easily, also sensitive. 
@@ -184,6 +184,7 @@ caiman lizards kin
 
 -- Fav youtubers; Kwite, PolarCub, Kaden, Flamingo, & Funneh I still watch them
 
+— I love Green lanterns or the flash, YJ, JLI, JLA, doom patrol, JLE, and much more![I’m obsessed with DC ]
 
 — fantasy/mythical creatures lover. Knights are so cool
 
@@ -310,7 +311,7 @@ Fictionkins & yumeshippers users unless we friends
 
  ccherrypie/j-pawss. Hoping he’s not around 
 
- My friend’s ex friends
+ My friend’s ex friends especially ex partners[Only the ppl who hurt them]
 
  Ppl who seek drama and those who do not know how to apologize properly or take responsibility for their actions.
 
