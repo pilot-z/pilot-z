@@ -51,17 +51,11 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 
 ꗞ — Im aware that I am a weirdo.
-If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc.
-
-Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
+If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc. Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
 
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
-I’m against anyone in our community who opposes our trans sisters.
-
-I am against misgendering in our community.
-
-Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
+I’m against anyone in our community who opposes our trans sisters. I am against misgendering in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
 I’m not interested in transmed stuff.
 
 
@@ -70,8 +64,7 @@ I’m not interested in transmed stuff.
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
 For me, I use them to discover more about myself. Thats it.
-May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more.
-I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
+May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
 Most of terms are in pronouncc I’m only comfortable to share with people I trust.
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
