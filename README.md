@@ -52,7 +52,14 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
 ꗞ — Im aware that I am a weirdo.
 If you think I've taken things too far by using microlabels, xenogenders, alterhuman, etc.
-Feel free to not int, or block me if you are uncomfortable with my existence or our community.
+Feel free to not int, or block me if you are uncomfortable with my existence or our community. 
+I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
+I’m against anyone in our community who opposes our trans sisters.
+I am against misgendering in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
+I’m not interested in transmed stuff.
+
+
+ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers, if self-diagnosis is valid or not, and more.
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
