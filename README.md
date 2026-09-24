@@ -55,7 +55,7 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
-I’m against anyone in our community who opposes our trans sisters. I am against misgendering in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
+I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against their xeno/neopronouns] in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
 I’m not interested in transmed stuff. 
 
 
