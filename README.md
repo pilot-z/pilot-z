@@ -65,7 +65,7 @@ I’m not interested in transmed stuff.
 It may not help, but i will try. 
 For me, I use them to discover more about myself. Thats it.
 May seem ridiculous n cringe to u,but as a person who is diagnosed, its harder for me to read social cues,understand myself,n more. I use terms/labels to help me understand the way I feel, figure out my identity,find others who relate to what I am going through, etc, to fit in. 
-Most of terms are in pronouncc I’m only comfortable to share with people I trust.
+Most of terms are in main pronouncc I’m only comfortable to share with people I trust.
 
 ꗞ — Am I a bad person for kinfirming overhated characters, even problematic ones like Blackhand n Sabretooth? No.
 If you think otherwise, thats okay, but keep it to yourself. Even you believe it is a choice.
