@@ -47,7 +47,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT! OVERSHARING? !</summary>
+<summary>BEFORE YOU INTERACT! !</summary>
 
 
 ꗞ — Im aware that I am a weirdo.
