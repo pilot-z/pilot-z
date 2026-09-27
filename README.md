@@ -96,8 +96,9 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
-— If I befriend or int with a problematic person, let me know
-  
+— If I befriend or int with an actual problematic person, let me know.
+
+  — I don’t feel comfortable with ppl treating autism or any disability as a joke. Like creating a character look dumb and call them "tard".  Doesn’t matter if you’re diagnosed. Don’t care if you are a friend of my friends. 
 
 </details>
 
