@@ -82,7 +82,7 @@ I don’t want to come across as annoying or as if I'm bothering anyone.
 I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
 
 
-— Please bear in mind that I have dyslexia, Written Expression Disorder, and dyscalculia. very fun.
+— Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
 My main problems are basic spelling, poor grammar, counting, and list goes on... 
 Please don’t be upset with me
 
