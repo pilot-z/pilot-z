@@ -55,7 +55,8 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
-I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to add anyone who adds black ppl or different groups in their iwc, thin ice or whatever list. I don’t feel safe around ppl like you
+I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to add or talk with anyone who adds black ppl or different groups in their iwc, thin ice or whatever list. I don't feel safe around people like that. The last time someone approached me, they had an American thin ice/DNI. They knew I am from Puerto Rico, which was is soo frustrating. 
+It makes me wonder if people have forgotten that Puerto Ricans are USA citizens. shrugs
 
 I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
 I’m not interested in transmed stuff. 
