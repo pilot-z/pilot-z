@@ -55,14 +55,13 @@ If you think I've taken things too far by using microlabels, xenogenders, alterh
 
 I am a good-faith identity, that means I support not policing or excluding harmless identities, even those that are difficult to understand part of the community.
 
-I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to add or talk with anyone who adds black ppl or different groups in their iwc, thin ice or whatever list. I don't feel safe around people like that. The last time someone approached me, they had an American thin ice/DNI. They knew I am from Puerto Rico, which was is soo frustrating. 
-It makes me wonder if people have forgotten that Puerto Ricans are USA citizens. shrugs
+I don't tolerate xenophobic or racism. That includes having an entire group on your list. I refuse to talk with anyone who adds black ppl or different groups in their list. I don't feel safe around people like that. The last time someone approached me, they had an American thin ice/DNI. They knew I am from Puerto Rico, which was is soo frustrating. 
 
-I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because something upsets you, it doesn't give you an excuse to be transphobic even if you are a trans man, nonbinary, etc.
-I’m not interested in transmed stuff. 
+I’m against anyone in our community who opposes our trans sisters. I am against misgendering[even against those who claimed they support xeno/neopronouns] in our community. Just because someone upsets you or is “problematic” , that doesn't give you an excuse to be transphobic, even if you are a queer cis person, trans man, nonbinary, etc. 
+I’m not interested in transmed stuff neither. 
 
 
-ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers.
+ꗞ — I’m no interested in any online argument such as proshippers/darkshippers vs antishippers. 
 
 ꗞ — Whats the point of terms?
 It may not help, but i will try. 
@@ -78,8 +77,8 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 
 
 
-—  I’m awkward as shit. 
-I’m socially awkward and get overwhelmed really easily, also sensitive. 
+—  I’m awkward as shit ;
+I’m socially awkward and get overwhelmed really easily, also sensitive..?
 I tend to be somewhat quiet or rarely INT first when it comes with new people. 
 I don’t want to come across as annoying or as if I'm bothering anyone. 
 I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
@@ -99,9 +98,6 @@ I apologize very often, and I also find it hard to say no or set boundaries for 
 
  — I tend to get very clingy to the people I feel comfortable with, and I end up being annoying. If you don't like that, tell me.
 
-— If I befriend or int with an actual problematic person, let me know.
-
-  — I don’t feel comfortable with ppl treating autism or any disability as a joke. Like creating a character look dumb and call them "tard".  Doesn’t matter if you’re diagnosed. Don’t care if you are a friend of my friends. 
 
 </details>
 
@@ -142,7 +138,7 @@ I’m not going to unblock anyone. Please stop bothering my friends. My friends 
   
  Michael de santa . Fullkin/ID — doubles? IWEC.
   
-  Hal Jordan . Fullfic/ID - doubles? DNI
+  Hal Jordan . Fullfic/IRL - doubles? DNI
  
 
   Two face . Fullfic/ID - doubles? DNI
@@ -153,24 +149,54 @@ Angel xmen . Fullfic - doubles? IWEC
 
 Jetfire/Skyfire . ID - doubles? IWEC
 _________________
- Other alterhumans;
  
- wolverinekin 
  
- ferret therian
+ 
+ theriotype ;
+ 
+ ferret
 
-monitor lizard kin
+ maned wolf
 
- penguin kin
+ dalmatian dog
 
- mouse kin
+ fox
 
- owl kin
+ german shepherd 
+ 
+ lion 
+_________
 
-golden retriever kin
+objects ;
+
+puppet 
+
+teddy bear
+
+nutcracker
+
+_______
+
+Other alterhumans;
+
+monitor lizard
+
+wolverine
+
+ snake
+ 
+ penguin
+
+ mouse
+
+ owl
+
+knife
+
+golden retriever
 
 
-caiman lizards kin
+caiman lizards 
 
 
 [ extra ]
