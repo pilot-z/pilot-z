@@ -81,7 +81,7 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 I’m socially awkward and get overwhelmed really easily, also sensitive..?
 I tend to be somewhat quiet or rarely INT first when it comes with new people. 
 I don’t want to come across as annoying or as if I'm bothering anyone. 
-I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. 
+I know I shouldn't care at all, but I’ve realized that several people have blocked/unfriended me because of this without telling me what I’m doing wrong. I know it’s my fault sigh
 
 
 — Please bear in mind that I have dyslexia, Dysgraphia, and dyscalculia. very fun.
