@@ -47,7 +47,7 @@ $${\color{#008000} IƬƧ \ MΣ \ ƬΉΣ \ ЯΣΛᄂ \ ΉΛᄂ \ JꗞЯDΛП/j}$$
 
  
  <details>                     
-<summary>BEFORE YOU INTERACT! !</summary>
+<summary>BEFORE YOU INTERACT! Be warned.. I yap a lot. !</summary>
 
 
 ꗞ — Im aware that I am a weirdo.
