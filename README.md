@@ -75,7 +75,12 @@ Its ur belief, not mine. It feels pointless to argue. kinfirm a character does n
 
 — I care a lot about my own image.
 
-
+— Pls do not force me to give myself a system role or anything like that.
+Just bec I have DID, doesn’t mean I need a label, nor do people need to know whether or not Im a”singlet.”
+I am a being living in a living body,
+n I want to be treated like one.
+ I don't like calling myself a system because it feels wrong to me. 
+I also dont like using we/us or called a host.  I don't need labels to be valid, and I don't need one just to let others know I have DID. I want to be treated like I am one person, and that is it. This goes with autism n others.
 
 —  I’m awkward as shit ;
 My social anxiety is really horror and I get overwhelmed really easily, also sensitive..? 
